@@ -1,2 +1,0 @@
-# Johnlloydbonga.github.io
-Portfolio
